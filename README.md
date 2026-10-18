@@ -13,9 +13,9 @@
 
 ✚ i love my bf & hateclub !! 
 
-✚ no dni , i block freely 
+✚ no dni besides what's stated above , i block freely 
 
-✚ did sys , heavy dealer kin 8)
+✚ did sys , heavy dealer kin 8) , sys dealer ceo / dealseye sys4sys ceo
 
 ✚ feel free to whisp or send shit in my strawpage 
 
