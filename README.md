@@ -17,6 +17,6 @@
 
 ✚ did sys , heavy dealer kin 8) , sys dealer ceo / dealseye sys4sys ceo
 
-✚ feel free to whisp or send shit in my strawpage 
+✚ feel free to whisp or send shit in my strawpage , i dont really make my skins detailed :P
 
 ---------------------------------
